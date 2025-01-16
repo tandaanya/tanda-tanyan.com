@@ -1,2 +1,2 @@
-# tanda-tanyan.com
+# tanda-tanya.com
 tanda tanyan.com
